@@ -1,0 +1,2 @@
+# pinzmad.github.io
+Strona
